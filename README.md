@@ -1,3 +1,5 @@
+[![Ask DeepWiki](https://deepwiki.com/badge.svg)](https://deepwiki.com/rimski93/FomentDelComerc)
+
 **BASES REGULADORES DE SUBVENCIONS PER AL FOMENT DEL COMERÇ AL MUNICIPI D’ASCÓ**
 
 **PRIMERA. FINALITAT**
